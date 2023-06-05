@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Muliph
-- 👀 I’m interested in stuff
+- 👀 I’m interested in stuffing my d in ur mama.
 - 🌱 I’m currently learning Java, SQL, C#, Progress
 - 💞️ I’m looking to collaborate on ridding the world of evil
 - 📫 How to reach me through the mating call of a kookaburra
